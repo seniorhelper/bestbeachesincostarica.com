@@ -1,0 +1,2 @@
+# bestbeachesincostarica.com
+bestbeachesincostarica.com
